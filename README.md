@@ -1,4 +1,4 @@
 ### Hi there 👋
 - 🔭 I’m currently working on new projects !
 
-![CAT](./cat.jpg)
+![CAT](http://newevolutiondesigns.com/images/freebies/cat-wallpaper-48.jpg)
